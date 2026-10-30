@@ -1,0 +1,78 @@
+# Ricochet (Acoustic Version)
+
+- **Release:** Vessels 2.0 · 2018-09-28
+- **Track:** 20 of 24
+- **Length:** 4:52
+- **Type:** Acoustic version
+- **Lyrics source:** LyricsFreak (same lyrics as original)
+
+> Acoustic version; same lyrics as the original.
+
+---
+
+And we were born
+Over the world
+We were flying through the satellites
+We had a hold of the lightning strikes
+When we should've been afraid of heights
+And I was trying just to get you
+And now I'm dying to forget you
+Cause I knew I couldn't catch you
+So I light the sky
+And I fell behind
+
+We were one in the same
+Running like moths to the flame
+You'd hang on every word I'd say
+But now they only ricochet
+We were falling away
+You left me with a bittersweet taste
+But when I sent my heart your way
+It bounces off the walls you made
+Ricochet
+
+If I was whole
+I'd turn right now
+I'd forget it and just walk away
+Cause I've been told
+That I'm dragging it out
+But I've been dying just to see your face
+And all I wanted was to say "goodbye"
+Into the fortress and you're stuck behind
+And in the silence now I realize
+That after all I built the wall
+
+We were one in the same
+Running like moths to the flame
+You'd hang on every word I'd say
+But now they only ricochet
+You were falling away
+You left me with a bittersweet taste
+But when I send my heart your way
+It bounces off the walls you made
+Ricochet
+
+All these broken souls
+They never make me whole
+They don't, they don't know my heart
+They don't know my heart
+
+All these broken souls
+Each one more beautiful
+They don't, they don't know my heart
+They don't know my heart
+
+I'll send out my soul
+To worlds more beautiful
+But they won't, they won't know my heart
+It's the darkest part
+
+We were one in the same
+Running like moths to the flame
+You'd hang on every word I'd say
+But now they only ricochet
+You were falling away
+You left me with a bittersweet taste
+But when I send my heart your way
+It bounces off the walls you made
+Ricochet

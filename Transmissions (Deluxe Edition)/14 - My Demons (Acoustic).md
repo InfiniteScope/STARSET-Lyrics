@@ -1,0 +1,53 @@
+# My Demons (Acoustic)
+
+- **Release:** Transmissions (Deluxe Edition) · 2016-02-12
+- **Track:** 14 of 23
+- **Length:** 3:34
+- **Type:** Acoustic version
+- **Lyrics source:** LyricsFreak (same lyrics as original)
+
+> Acoustic version; same lyrics as the original, different arrangement.
+
+---
+
+Mayday! Mayday!
+The ship is slowly sinking
+They think I'm crazy but they don't know the feeling
+They're all around me,
+Circling like vultures
+They wanna break me and wash away my colors
+Wash away my colors
+
+Take me high and I'll sing
+Oh you make everything okay (okay, okay)
+We are one in the same
+Oh you take all of the pain away (away, away)
+Save me if I become
+My demons
+
+I cannot stop this sickness taking over
+It takes control and drags me into nowhere
+I need your help, I can't fight this forever
+I know you're watching,
+I can feel you out there
+
+Take me high and I'll sing
+Oh you make everything okay (okay, okay)
+We are one in the same
+Oh you take all of the pain away (away, away)
+Save me if I become
+My demons
+
+Take me over the walls below
+Fly forever
+Don't let me go
+I need a savior to heal my pain
+When I become my worst enemy
+The enemy
+
+Take me high and I'll sing
+Oh you make everything okay (okay, okay)
+We are one in the same
+Oh you take all of the pain away (away, away)
+Save me if I become
+My demons
